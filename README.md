@@ -1,1 +1,1 @@
-# coinmaha.github.io
+# coin1.github.io
